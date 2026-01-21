@@ -2,8 +2,6 @@
 
 I'm Gloria. Psychology and Data in Society @ UCD. Aspiring Data Analyst  
 
->She/Her/Hers
-
 Some of my interests include: Research, Music, Data visualization, NLP 
 
 ⚡ Fun fact: I was born in Italy!
